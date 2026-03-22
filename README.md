@@ -1,4 +1,4 @@
-# Let Him Cook - Warwick-Game-Jam-2026 (Theme : No Time To Explain!)
+# Let Him Cook - Warwick-Game-Jam-2026 Honorable Mention (Theme : No Time To Explain!)
 
 Try it for free on browser here: https://prelude-games.itch.io/let-him-cook
 
